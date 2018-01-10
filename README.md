@@ -4,6 +4,8 @@ The West Hawaii Astronomy Club is currently a non-affiliated group of interested
 
 To meet regularly, socialize, discuss the wonders of the cosmos, hold observing sessions & clinics, and generally promote the advancement of the hobby of astronomy on the west side of the big island of Hawaii.
 
+![WHAC observing night c. 2007](SizzlinSummer2007.jpg)
+
 Who are we?
 
 * We unofficially call ourselves "WHACos"....it's a historical thing...we're really not crazy.

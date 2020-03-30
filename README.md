@@ -24,4 +24,4 @@ We have meetings on the second Tuesday of every month at 7pm. Meetings are open 
 
 ## Membership
 
-There's no formal membership in WHAC.  The club communication is built around our [Yahoo! Group](https://groups.yahoo.com/neo/groups/whac/conversations/messages).  If you'd like to "join" the club, sign up for that email group.
+There's no formal membership in WHAC.  The club communication is built around our [Groups.io Group](https://groups.io/g/WHAC).  If you'd like to "join" the club, sign up for that email group.
